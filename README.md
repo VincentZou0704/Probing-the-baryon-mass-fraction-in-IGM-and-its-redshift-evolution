@@ -1,1 +1,1 @@
-# Probing-the-baryon-mass-fraction-in-IGM-and-its-redshift-evolution1
+# Probing-the-baryon-mass-fraction-in-IGM-and-its-redshift-evolution
